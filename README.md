@@ -1,8 +1,7 @@
 # chillatives-definition
 Meaning of Chillatives
 
-**Chillative**
-Chillative (noun, plural: Chillatives) is a neologism formed by blending the words "chill" and "relative". It refers to a person with whom one shares a strong emotional bond similar to family, but formed purely through shared vibe, understanding, and comfort — not blood or obligation.
+**Chillative** (noun, plural: Chillatives) is a neologism formed by blending the words "chill" and "relative". It refers to a person with whom one shares a strong emotional bond similar to family, but formed purely through shared vibe, understanding, and comfort — not blood or obligation.
 
 **Etymology**
 
